@@ -11,7 +11,7 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 </p>
 <table align="right"><th>
 <details><summary>My links</summary>
-  <a href="https://gutspilled.straw.page/">Straw</a>
+  <a href="https://keysrustling.straw.page">Straw</a>
 <a href="https://friedbrain.atabook.org/">新</a>
 </details>
 </th>
