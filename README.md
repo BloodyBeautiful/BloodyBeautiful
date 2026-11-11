@@ -23,7 +23,6 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 
   <p dir=auto>
 <table align="left"><th>
-  <img height="20px;" src="https://img.sanishtech.com/u/469845a6aedc9af27b001138c1da3b05.png"> 
   Click for nominations (wip)‎
   <br>he / Him . 16yrs old 
   <br> diagnosed Ocd , undiagnosed BPD
