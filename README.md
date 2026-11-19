@@ -18,7 +18,7 @@ $\color{#184E77}{\text{꒰ྀི১}}$
 
 <table align="right"><th>
 <details><summary>𝓑𝔂𝓲</summary>
-  <br> read straw for byi and dni, do not int unless you do </details></th>
+  <br> read straw for byi and dni, do not int unless you do, I'm very possessive and protective over my friends, never try to - harm em, insult em, threaten em, tarnish their reputation</details></th>
 
   <p dir=auto>
 <table align="left"><th>
