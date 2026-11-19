@@ -23,6 +23,6 @@ $\color{#184E77}{\text{꒰ྀི১}}$
   <p dir=auto>
 <table align="left"><th>
   Click for nominations (wip)‎
-  <br>he / Him . 16yrs old 
+  <br>he / Him . Won't say my age online
   <br> diagnosed Ocd , undiagnosed BPD
 </th></table>
