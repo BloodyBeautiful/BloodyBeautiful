@@ -1,28 +1,18 @@
-<p align=center>
-$\color{#184E77}{\text{꒰ྀི১}}$
-  $\color{#1A759F}{\text{𝔖𝔱𝔞𝔫𝔩𝔢𝔶}}$
-  $\color{#52B69A}{\text{𓏵}}$
-  $\color{#1A759F}{\text{𝔏𝔬𝔲𝔦𝔰}}$
-  $\color{#184E77}{\text{໒꒱ིྀ}}$
+<table align="center"><th>
+<details><summary></summary>
+  <br> placehorder </details></th>
+
+  <p align="center"> 
+<img src="https://www.image2url.com/r2/default/images/1795191849323-19de4883-f7a7-4112-8f04-5b2f1f2eb27f.png" alt="image" />
 </p>
 
-<p align=center>
-  <img src="https://www.image2url.com/r2/default/images/1794065260374-d8502fcd-6572-4d4c-b6a2-3ab8a47c838b.webp" alt="1000000275" width="500"> 
+<p align="Center">
+<img src="https://www.image2url.com/r2/default/images/1795191939011-17405a8f-7fbe-4dac-9436-d01b8b789711.png" alt="image" />
 </p>
-<table align="right"><th>
-<details><summary>My links</summary>
-  <a href="https://keysrustling.straw.page">Straw</a>
-<a href="https://friedbrain.atabook.org/">新</a>
-</details>
-</th>
 
-<table align="right"><th>
-<details><summary>𝓑𝔂𝓲</summary>
-  <br> read straw for byi and dni, do not int unless you do, I'm very possessive and protective over my friends, never try to - harm em, insult em, threaten em, tarnish their reputation</details></th>
+<p align="center">
+<a href="https://friedbrain.atabook.org/"><img src="https://www.image2url.com/r2/default/images/1795192651516-0bc72f52-e392-494b-b0d1-188deb2b2603.png" height="80"></a>
 
-  <p dir=auto>
-<table align="left"><th>
-  Click for nominations (wip)‎
-  <br>he / Him . Won't say my age online
-  <br> diagnosed Ocd , undiagnosed BPD
-</th></table>
+<p align="center"> 
+<img src="https://www.image2url.com/r2/default/images/1795191914587-dcd5e8e5-a5e8-4183-896a-f9947604e709.png" alt="image" />
+</p>
