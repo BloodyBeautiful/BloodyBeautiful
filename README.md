@@ -2,7 +2,7 @@
   ponyTown's Truman Burbank
 </p>
 <p align="center">
-<a href="https://friedbrain.atabook.org/">Marvelous Ponytown</a>
+<a href="https://github.com/marvelous-pt">Marvelous Ponytown</a>
 </p>
 
 <table align="center"><th>
